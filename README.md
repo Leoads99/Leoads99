@@ -13,7 +13,9 @@
 
 🔍 Estou buscando oportunidades em Python e JavaScript.
 
-entre em contato comigo: 
+
+
+Entre em contato comigo: 
 
 💼 Linkedin: 
 https://www.linkedin.com/in/leoadsouza/

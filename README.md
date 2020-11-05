@@ -32,3 +32,6 @@ https://www.linkedin.com/in/leoadsouza/
 
 📩 Outlook:
 leosouza-3799@hotmail.com
+
+WhatsApp:
+https://whatsfacil.com/a5252c
